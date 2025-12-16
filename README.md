@@ -1,7 +1,7 @@
 
 
 
-### Hi, I'm Dex (:computer: :-)  
+### Hi, I'm Preetham (Dex) (:computer: :-)  
 
 
 
